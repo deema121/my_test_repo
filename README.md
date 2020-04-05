@@ -1,4 +1,4 @@
 # my_test_repo
-kokushki v popushke
+kokushki v tvoei popushke
 
 Added Anus PSA
